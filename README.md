@@ -1,2 +1,2 @@
 # my-rsschool
-My super cv
+My super-puper cv
